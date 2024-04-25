@@ -5,6 +5,3 @@
 - 📫 How to reach me Pourya.eb@outlook.de
 - 📫 My <a href="https://public.tableau.com/app/profile/pourya.ebrahimi4144/vizzes">Tableau</a> page
 
-
-  
-
